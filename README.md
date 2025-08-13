@@ -1,2 +1,0 @@
-# indicadoresyoyoso
-Page
